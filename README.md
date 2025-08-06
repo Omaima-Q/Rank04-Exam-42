@@ -1,1 +1,4 @@
-# rank4_Exam_42
+# rank4_Exam
+
+one question only. 
+good luck 🔥
